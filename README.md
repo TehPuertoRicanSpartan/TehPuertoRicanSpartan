@@ -1,1 +1,2 @@
-if you swear, don't EVER talk to me
+i simp
+not gonna tell you who i simp for
